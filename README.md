@@ -1,2 +1,0 @@
-# Gent
-Blond hair 
